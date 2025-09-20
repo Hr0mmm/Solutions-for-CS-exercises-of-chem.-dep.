@@ -7,4 +7,4 @@ Guys, this is just a trial project, and I don't know how relevant it will be for
 
 Support autor: 2204 3206 2700 6366
 
-Поддержать проет: 2204 3206 2700 6366
+Поддержать проект: 2204 3206 2700 6366
